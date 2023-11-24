@@ -1,1 +1,0 @@
-# SmartBadget.github.io
